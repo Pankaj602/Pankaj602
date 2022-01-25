@@ -1,5 +1,5 @@
-- 👋 Hi, I’m @Pankaj602
-- 👀 I’m interested in ...
+- 👋 Hi, I’m @Pankaj412001
+- 👀 I’m interested in IT Related courses and programmes
 - 🌱 I’m currently learning undergraduate programme BCA
 - 💞️ I’m looking to collaborate on ...
 - 📫 you can reach me through My Emai id pankajgupta412001@gmail.com
